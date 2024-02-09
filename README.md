@@ -12,7 +12,7 @@
     - I’m interested in Programming and coding that's the least thing to say.  
 
 
-      - Currently speaking fluently 3 languages: -Russian; -French; English; and in the process of learning Spanish.
+      - Currently speaking fluently 3 languages: -Russian; -French; English; and in the process of learning Spanish, so communication is not my disadvantage.
 
 
         - Fun fact: This README.md will be in 3 different languages!
